@@ -1,6 +1,5 @@
-![Untitled2011_20250310193918](https://github.com/user-attachments/assets/b43f03b4-96b5-4e1f-9f14-ea664559953e)
+c00lkidd fictkinㅤcudcomfㅤiwcucf !
 
+![cr](https://github.com/user-attachments/assets/431ad1d0-ec07-48fe-8da6-97a31b2eb2da)
 
-firey hvykin . iwec . multifandom
-
-minor . artist . @kaderonie in tiktok!
+no i am not draiwng 7n7 pregnnant .
